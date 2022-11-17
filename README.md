@@ -1,0 +1,2 @@
+# labaratonaya
+laba1
